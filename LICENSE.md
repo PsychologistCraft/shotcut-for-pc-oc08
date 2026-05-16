@@ -1,4 +1,4 @@
-# 
+# updated Shotcut for PC | Shotcut for Windows Automation | color-correction + AI-enhanced-editing offers the most advanced Shotcut for PC | Shotcut for Windows automation, with
 
 
 
